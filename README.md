@@ -4,4 +4,4 @@
 
 ## Preview:
 
-![Matrix Digital Rain Preview](https://github.com/user-attachments/assets/13a8ecac-b02a-4459-a8e6-79bf97c8c4c4)
+![Matrix Digital Rain Preview](https://github.com/user-attachments/assets/c42c6951-97bc-4d71-b996-3f150c8aef62)
